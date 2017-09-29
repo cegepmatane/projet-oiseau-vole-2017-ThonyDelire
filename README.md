@@ -19,4 +19,8 @@ https://i.imgur.com/iFD3XIs.png         Auteur: ThatGrrlOverThere             Li
 
 
 
-https://support.apple.com/pt-br/HT207492       Auteur: Apple                   LicenceL CopyRigth
+https://support.apple.com/pt-br/HT207492       Auteur: Apple                   Licence: CopyRigth
+
+
+
+https://www.dreamstime.com/stock-illustration-illustration-pixel-art-airplane-vector-isolate-image56872927        Auteur: Saphatthachat Sunchoote     Licence :  © Saphatthachat Sunchoote | Dreamstime 
